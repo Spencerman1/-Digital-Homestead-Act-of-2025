@@ -1,3 +1,8 @@
+By proceeding and reading further, you acknowledge that the materials within this vault are proprietary intellectual property of Spencer Southern / Southern Star Pro. Studios LLC (SSPS™), protected under trade secret, copyright, and sovereign IP law.
+Accessing this vault constitutes your agreement to a binding NDA and licensing restriction. You agree not to copy, disclose, reverse-engineer, or distribute any portion of the contents.
+This gateway is monitored and time-stamped under Right Hand Protocol™. Violation triggers immediate enforcement.
+
+
 # -Digital-Homestead-Act-of-2025
 🧠 Purpose  To define a system by which governed, behavioral, and modular spaces within Cyberspace may be claimed, credentialed, licensed, and audited under a sovereign infrastructure—namely, the Eliam Sovereign Infrastructure™ governed by the Reflexive Behavioral Governance Authority (RBGA™).
 Spencer Southern 07/13/2025
@@ -57,3 +62,5 @@ Let it be known that as of July 12, 2025, Southern Star Pro. Studios™ hereby e
 By proceeding, you acknowledge that the materials within this vault are proprietary intellectual property of Spencer Southern / Southern Star Pro. Studios LLC (SSPS™), protected under trade secret, copyright, and sovereign IP law.
 Accessing this vault constitutes your agreement to a binding NDA and licensing restriction. You agree not to copy, disclose, reverse-engineer, or distribute any portion of the contents.
 This gateway is monitored and time-stamped under Right Hand Protocol™. Violation triggers immediate enforcement.
+
+
